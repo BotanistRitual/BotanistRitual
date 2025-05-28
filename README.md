@@ -2,9 +2,8 @@
   
 <div align="center"><img src="https://files.catbox.moe/u4vyx6.jpeg"
 
-
-<p align="center"
   
+
 𝙷𝚎𝚢 𝚝𝚑𝚎𝚛𝚎, 𝚝𝚑𝚎 𝚗𝚊𝚖𝚎s 𝙰𝚣𝚞𝚛e
 
 <p align="center"
