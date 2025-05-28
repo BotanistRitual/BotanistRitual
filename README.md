@@ -1,6 +1,6 @@
  ## one holds resentment
   
-![1000006473](https://github.com/user-attachments/assets/6613b1b4-fb07-4add-a1fe-f8c8804add5f)
+<div align="center"><img src="https://files.catbox.moe/u4vyx6.jpeg"
 
 
 <p align="center"
