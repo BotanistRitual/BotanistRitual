@@ -1,6 +1,7 @@
  ## one holds resentment
   
-![1000037503](https://github.com/user-attachments/assets/ffa697a0-51a9-488a-906d-d72ac90307d4)
+![1000006473](https://github.com/user-attachments/assets/6613b1b4-fb07-4add-a1fe-f8c8804add5f)
+
 
 <p align="center"
   
@@ -25,4 +26,4 @@ always non-verbal if you are interested in talking to us, whisper us throughly
 
 bleuh we like Kiltro, yaelokre, laufey and mitski:PP (comf), Azuretime is our comf ship!!!^_^
 
-![1000037502](https://github.com/user-attachments/assets/28b59e8e-ae29-46ae-95c8-15107004338c)
+![1000006472](https://github.com/user-attachments/assets/0c0e5513-6eeb-48cb-b855-56d1f72a2536)
