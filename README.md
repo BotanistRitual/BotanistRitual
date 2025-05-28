@@ -25,5 +25,4 @@ w2i
 always non-verbal if you are interested in talking to us, whisper us throughly
 
 bleuh we like Kiltro, yaelokre, laufey and mitski:PP (comf), Azuretime is our comf ship!!!^_^
-
 <div align="center"><img src="https://files.catbox.moe/u4vyx6.jpeg"
